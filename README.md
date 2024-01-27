@@ -1,5 +1,5 @@
 # ʚ skin inspo ɞ
-lyney rmk 4. ht rmk2 and furina rmk are inspired by
+lyney rmk 4, ht rmk2, raiden rmk2/c0r1 and furina rmk are inspired by
 littledollyboo1 on IG :D
 
 
