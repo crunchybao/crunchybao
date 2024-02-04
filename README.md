@@ -1,9 +1,8 @@
-# ʚ skin inspo ɞ
-lyney rmk 4, ht rmk2, raiden rmk2/c0r1 and furina rmk are inspired by
-littledollyboo1 on IG :D
+# ʚ skin info ɞ
+001 — THE STYLE I USE OFTEN IS INSPIRED BY **littledollyboo1**'S ARTSTYLE ON IG!! // my furina rmk 3 is inspired by spqve on twt!!
 
 
-plz no copy skin , ask 4 inspo
+note!! — **please don't copy!** , i allow inspiration but please **tell me beforehand!!**
 # ʚ pt info ɞ
 usually offtab and/or busy when having the moon status, w2i.
 
