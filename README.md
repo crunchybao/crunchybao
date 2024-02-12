@@ -8,6 +8,6 @@ usually offtab and/or busy when having the moon status, w2i.
 
 mostly afk on mondays 7:20AM-4:20PM (UTC+8:00)
 
-c+h ok, just ask ^^ (unless friend)
+cuddles are ok, just ask (so i dont get startled hsfhbehsj) ^^ (unless friend)
 
 not much of a talker when we haven't interacted b4 srry
