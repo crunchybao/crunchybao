@@ -1,13 +1,9 @@
-# ʚ skin info ɞ
-001 — THE STYLE I USE OFTEN IS INSPIRED BY **littledollyboo1**'S ARTSTYLE ON IG!! // my furina rmk 3 is inspired by spqve on twt!!
+# 001
+style insp littledollyboo1 (ig)
 
+insp ok copy no
 
-note!! — **please don't copy!** , i allow inspiration but please **tell me beforehand!!**
-# ʚ pt info ɞ
-usually offtab and/or busy when having the moon status, w2i.
+# 002
+on pt: studying/offtab
 
-mostly afk on mondays 7:20AM-4:20PM (UTC+8:00)
-
-cuddles are ok, just ask (so i dont get startled hsfhbehsj) ^^ (unless friend)
-
-not much of a talker when we haven't interacted b4 srry
+only online on weekends
