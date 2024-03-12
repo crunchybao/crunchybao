@@ -1,17 +1,3 @@
-![](https://64.media.tumblr.com/3e94487bc3bc020257505c918195f1fa/0791688e1d738195-18/s1280x1920/1b8c944104c45577b33bb636b0db19492934b11d.jpg)
-## ⋆ ˚｡⋆୨ ʚɞ ୧⋆ ˚｡⋆
-furina skin is inspired by @littledollyboo1 on ig
+<p align="center"><img src="https://media.discordapp.net/attachments/1134064625760075887/1217031367779553360/copy_8EE98D65-8E6E-45D8-B000-939FC0E07FCC.gif?ex=66028bc9&is=65f016c9&hm=3b0e9302160bd9008746241506803fb9b6b330583b6808a8effa70e8a860212f&" /></p>
 
-please ask for:
-
-- skin insp
-- cuddles
-
- ## ଘ(੭◌ˊᵕˋ)੭* ੈ♡‧₊˚
-i'm OFFTAB most of the time, so
-
-i very much prefer w2i
-
-but if you're shy
-
-sign my [gbook](https://crunchybao.123.guestbook.com/)
+<p align="center"><img src="https://64.media.tumblr.com/610fb300f2b23965a6f264f97da9344b/a5530745991e8d43-69/s250x400/87a9c592ffbde52a613c1996cce62ea107f5f8d0.png" /></p>
