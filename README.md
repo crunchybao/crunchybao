@@ -6,7 +6,7 @@
 <p align="center"><img src="https://64.media.tumblr.com/610fb300f2b23965a6f264f97da9344b/a5530745991e8d43-69/s250x400/87a9c592ffbde52a613c1996cce62ea107f5f8d0.png" /></p>
 
 <p align="center">
-<a href="https://rentry.co/wonyoungii/" align="center">
+<a href="https://rentry.co/wwonyoung/" align="center">
 rentry
 </a>
 </p>
