@@ -18,7 +18,7 @@ gbook
 </p>
 
 <p align="center">
-<a href="https://rentry.co/p5lyney">
+<a href="https://rentry.co/furinap">
 links
 </a>
 </p>
