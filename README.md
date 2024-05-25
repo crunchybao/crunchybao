@@ -1,12 +1,12 @@
 
----
+<p align="center"><img src="https://media.discordapp.net/attachments/1134064625760075887/1243783974510399519/Untitled975_20240525122017.png?ex=6652bb97&is=66516a17&hm=0aeb0981498271900f2ce6ed040d4b83c2162121c94609ba71766111fc95e4d5&=&format=webp&quality=lossless&width=1440&height=133"/> </p>
 
-<p align="center"><img src="https://media.discordapp.net/attachments/1134064625760075887/1217031367779553360/copy_8EE98D65-8E6E-45D8-B000-939FC0E07FCC.gif?ex=66028bc9&is=65f016c9&hm=3b0e9302160bd9008746241506803fb9b6b330583b6808a8effa70e8a860212f&" /></p>
+<p align="center"><img src="https://media.discordapp.net/attachments/1134064625760075887/1243783975026163783/Untitled975_20240525121847.png?ex=6652bb98&is=66516a18&hm=1bd7953a327501b26ff58a6a231416e1331b2e37af53d690e0787fbebb545c16&=&format=webp&quality=lossless&width=1317&height=741" /></p>
 
-<p align="center"><img src="https://64.media.tumblr.com/610fb300f2b23965a6f264f97da9344b/a5530745991e8d43-69/s250x400/87a9c592ffbde52a613c1996cce62ea107f5f8d0.png" /></p>
+<p align="center"><img src="https://media.discordapp.net/attachments/1134064625760075887/1243783974510399519/Untitled975_20240525122017.png?ex=6652bb97&is=66516a17&hm=0aeb0981498271900f2ce6ed040d4b83c2162121c94609ba71766111fc95e4d5&=&format=webp&quality=lossless&width=1440&height=133" /></p>
 
 <p align="center">
-<a href="https://rentry.co/wwonyoung/" align="center">
+<a href="https://rentry.co/animulachoragi-/" align="center">
 rentry
 </a>
 </p>
@@ -23,4 +23,4 @@ links
 </a>
 </p>
 
----
+<p align="center"><img src="https://media.discordapp.net/attachments/1134064625760075887/1243783974510399519/Untitled975_20240525122017.png?ex=6652bb97&is=66516a17&hm=0aeb0981498271900f2ce6ed040d4b83c2162121c94609ba71766111fc95e4d5&=&format=webp&quality=lossless&width=1440&height=133"/> </p>
