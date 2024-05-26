@@ -6,7 +6,7 @@
 <p align="center"><img src="https://media.discordapp.net/attachments/1134064625760075887/1243783974510399519/Untitled975_20240525122017.png?ex=6652bb97&is=66516a17&hm=0aeb0981498271900f2ce6ed040d4b83c2162121c94609ba71766111fc95e4d5&=&format=webp&quality=lossless&width=1440&height=133" /></p>
 
 <p align="center">
-<a href="https://rentry.co/animulachoragi-/" align="center">
+<a href="https://rentry.co/animulachoragi-" align="center">
 rentry
 </a>
 </p>
