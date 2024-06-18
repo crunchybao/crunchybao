@@ -15,5 +15,5 @@
 ⠀⠀⠀⠀⠀⠀⠀₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹ <br/>
 <br/>
 
-⠀⠀⠀⠀⠀⠀⠀⠀୧ ‧₊˚ [retrospring](https://retrospring.com/@crunchybao) ⋅ ☆ [carrd](https://akiyamakisser.carrd.co) ♡๋࣭ ⭑
+⠀⠀⠀⠀⠀⠀⠀⠀୧ ‧₊˚ [retrospring](https://retrospring.com/@crunchybao) ⋅ ☆ [rentry](https://rentry.co/mi2uki) ♡๋࣭ ⭑
 </p>
