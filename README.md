@@ -3,13 +3,13 @@
 <br/>
 <br/>
 <br/>
-  ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⊹ <b> status </b> <br>
-˖⟡ i'm offtab mostly learning stuff but i don't mind being interrupted :3 <br>
-˖⟡ if i'm ontab tho i'm mostly with friends ^_^ <br>
-˖⟡ feel free to c+h, i may get startled though ! <br>
+  ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⊹ <b> welcome </b> <br>
+˖⟡ i'm mostly offtab so feel free to drop a whisper i'll reply in a minute or so <br>
+˖⟡ don't be shy to int i don't bite, although it could be awkward T_T" <br>
 
  ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⊹ <b> ponies </b> <br>
-˖⟡ i'm fine with inspirations as long as you ask. feel free to whisper / ask in retrospring or guestbook <br>
+˖⟡ i'm okay with ponies inspired by me as long as you ask :3<br>
+˖⟡ some of my skins are inspired by artist @littledollyboo on insta!! <br>
 ˖⟡ copying is a heavy no no !! <br/>
 <br/>
 ⠀⠀⠀⠀⠀⠀⠀₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹ <br/>
