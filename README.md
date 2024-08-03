@@ -11,7 +11,7 @@
 ˖⟡ copying is a heavy no no !! <br/> </p>
 <br/>
 <br/>
-<p align="center>
+
 
  ⋅ ☆ [carrd](https://kanrojifan.carrd.co) ♡๋࣭ ⭑
 </p>
