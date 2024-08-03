@@ -13,5 +13,5 @@
 <br/>
 <p align="center>
 
-[graph cr](https://www.tumblr.com/tboiazazel/740673355466866688/madoka-kaname-rentry-graphics) ⋅ ☆ [carrd](https://kanrojifan.carrd.co) ♡๋࣭ ⭑
+ ⋅ ☆ [carrd](https://kanrojifan.carrd.co) ♡๋࣭ ⭑
 </p>
