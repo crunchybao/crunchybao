@@ -13,5 +13,5 @@
 <br/>
 
 
- ⋅ ☆ [carrd](https://kanrojifan.carrd.co) ♡๋࣭ ⭑
+ ⋅ ☆ [carrd](https://aqukana.carrd.co) ♡๋࣭ ⭑
 </p>
