@@ -3,7 +3,7 @@
 
 <br>
 
-<p align="center"> ⋅ ☆ ⭑ <a href="https:/rentry.co/cherrywater"> 
+<p align="center"> ⋅ ☆ ⭑ <a href="https://rentry.co/cherrywater"> 
   rentry
 <a>
  ⭑
