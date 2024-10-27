@@ -3,8 +3,8 @@
 
 <br>
 
-<p align="center"> ⋅ ☆ ⭑ <a href="https://aqukana.carrd.co"> 
-  carrd
+<p align="center"> ⋅ ☆ ⭑ <a href="https:/rentry.co/cherrywater"> 
+  rentry
 <a>
  ⭑
 <a href="https://rentry.co/furinap">
