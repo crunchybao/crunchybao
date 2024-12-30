@@ -7,8 +7,8 @@
   graph cr
 <a>
  ⭑
-<a href="https://rentry.co/sigmafurina">
- rentry (wip)
+<a href="https://furufuri.carrd.co/">
+ carrd
  </a>
   ⭑ ☆ ⋅
 </p>
